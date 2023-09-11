@@ -1,4 +1,4 @@
-# **HELLO THERE** :waving_hand: 
+# **HELLO THERE** 👋 
 * Interested to learn about coding
 * Sedang berpura pura sibuk
 * Hobi ku adalah menggalau :broken_heart:
