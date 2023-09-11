@@ -1,7 +1,7 @@
 # **HELLO THERE** 👋 
 * Interested to learn about coding
 * Sedang berpura pura sibuk
-* Hobi ku adalah menggalau :broken_heart:
+* Hobi ku adalah bermain basket 🏀
 * semangatku ingin menjadi aktor
 # NINUNINUNINUNINUNINUNINU :ambulance: :ambulance:
 > [!NOTE]
