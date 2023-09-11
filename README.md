@@ -5,5 +5,6 @@
 * semangatku ingin menjadi aktor
 > [!NOTE]
 > jatuh di aspal ga seindah jatuh hati.
+
 > [!WARNING]
 > Mudah pecah jangan dibanting.
