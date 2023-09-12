@@ -1,6 +1,6 @@
 # **HELLO THERE** 👋 
+## Geophysics Undergraduate Student
 * Interested to learn about coding
-* Sedang berpura pura sibuk
 * Hobi ku adalah bermain basket 🏀
 * semangatku ingin menjadi aktor
 # NINUNINUNINUNINUNINUNINU :ambulance: :ambulance:
